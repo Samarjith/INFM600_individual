@@ -1,1 +1,0 @@
-# INFM600_individual
